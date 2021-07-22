@@ -1,1 +1,1 @@
-# vedantpatil.github.io
+# vedant.github.io
